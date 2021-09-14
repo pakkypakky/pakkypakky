@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pakkypakky
+- 👀 I’m interested in coding and software development
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on nothing really
+- 📫 How to reach me is by my discord, which is Pakkykun#1234 (dont question the name)
